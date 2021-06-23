@@ -10,7 +10,7 @@
 
 
 How to reach me ...
-[LinkedIn](www.linkedin.com/in/sean~carlin)
+[LinkedIn](http://www.linkedin.com/in/sean~carlin)
 
 
 <!---
